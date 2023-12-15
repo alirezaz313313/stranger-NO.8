@@ -1,0 +1,1 @@
+# stranger-NO.8
